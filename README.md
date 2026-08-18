@@ -1,2 +1,2 @@
 # sofilomidze
-A 17-years-old violinist from Ukraine
+A 19-years-old violinist from Ukraine
